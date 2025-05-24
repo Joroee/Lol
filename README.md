@@ -1,7 +1,7 @@
 # Lol a letter! no, It's a response.
 a response for that letter from you C.
 
-To start this, I hope you realize I have your brother’s contact info and your family. Remember how your brother acknowledged me to be your partner? Someone so loyal to you and committed to you, yet you found someone so recent that you became so attached and obsessive. What do you think will happen if I told him I was very mad at you? I still had sympathy for your image to your brother and family, so I didn’t. Can’t you understand and see that what you were doing is considered cheating? Said by my auntie’s friend who is a Philosophy teacher.
+To start this, I hope you realize I have your brother’s contact info and your family. Remember how your brother acknowledged me to be your partner? Someone so loyal to you and committed to you, yet you found someone so recent that you became so attached and obsessive. it's crazy for you to say that im acting like this as if im Immature when im gonna turn 18 in the next months, Alright lets say What do you think will happen if I tell him everything if i was very mad at you? i wouldn't because I still had sympathy for your image to your brother and family. Can’t you understand and see that what you were doing is considered cheating? Said by my auntie’s friend who is a Philosophy teacher. 
 
 I didn’t get a glance for you to understand my side and feelings, as a male partner, yet you have the audacity to be upset about how I reacted instead of owning up to it? Even when you tried, I didn’t see any signs or improvements from you. Don’t even say I’m not trying to help you get over something or support you when I’ve been always there for you, even when I’ve got so much responsibilities to handle and the pressure I'm dealing with while you're admiring and obsessing him. I had to, because I simply fucking care. It’s quite stupid and degenerate for you to replace me over someone you just met in fucking Pony Town. Don’t even dare to reason your mental health of getting too attached when you didn’t understand mine. Guilt tripping me by cutting yourself to make me feel bad is stupid, by the way.
 
@@ -19,13 +19,20 @@ I was expecting you to make a message about me someday, just like you did to K, 
 
 Also, about how you fell for him just because of his aura and how he’s treating you like a boy which was actually soo stupid tbh, and trying to emotionally manipulate me by saying it’s because of that GB and you were overwhelmed when I’m not even asking much. Which led me to be more patient because I even believed you can change your ways, and then you said you didn’t like the title of the relationship as if you weren’t ready. I hope you get the context, getting in a relationship is a long-term fucking commitment. Tbh, what a lame ass response from you.
 
-Things wouldn’t have gone this way if you hadn’t fucking confessed to me in the first place, so that I didn’t get to be with you and actually find someone better. And I’m happy that I did find someone actually so much better, and I’ve already healed from the bullshit because of our bond and support for each other as we’ve experienced the same thing in our past relationships, which made us stronger. Yeah, I boast him because? I’m simply fucking happy, proud that I found someone like him, so why do you have to mention that?
+Things wouldn’t have gone this way if you hadn’t fucking confessed to me in the first place, so that I didn’t get to be with you and actually find someone better. And I’m happy that I did find someone actually so much better, and I’ve already healed from this bullshit because of our bond and support for each other as we’ve experienced the same thing in our past relationships, which made us stronger. Yeah, I boast him because? I’m simply fucking happy and proud that I found someone like him, so why do you have to mention that?
+
+I once promised myself I’d never fall in love again after you. But with him, I did, because he’s incredibly kind to me and understanding. I don’t need a year to heal this time; moving on just feels easier now i met him.
 
 And I don’t really care about the three followers as I’m using my GitHub to express myself, and I can’t believe you can check it even when I blocked you. I wish blocking you had so many features that you wouldn’t even see me. I’ve blocked you throughout every social media so I don’t remember you again, and it helped me significantly to move on after the incident.
 
 I’ve made a long message about what you’ve been saying to A, you can ask him about it, and I hope it opens your fucking eyes.
 
-Bye, and I hope I don’t ever hear from you again and forget about me. As you do the same.
+And honestly I'm saddened on how you turned and changed around March and April. Call me immature who is a 17 year old turning 18 this year but atleast i didnt had the idea to replace, obsessed, idolize and admire someone i just met in a Pony town while I'm in a relationship, its called loyalty. 
+
+And I hope I don’t ever hear from you again and forget about me. As you do the same.
+
+
+
 
 
 
