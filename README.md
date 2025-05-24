@@ -1,4 +1,4 @@
-# Lol
+# Lol a letter! a response.
 a response for that letter from you C.
 
 To start this, I hope you realize I have your brother’s contact info and your family. Remember how your brother acknowledged me to be your partner? Someone so loyal to you and committed to you, yet you found someone so recent that you became so attached and obsessive. What do you think will happen if I told him I was very mad at you? I still had sympathy for your image to your brother and family, so I didn’t. Can’t you understand and see that what you were doing is considered cheating? Said by my auntie’s friend who is a Philosophy teacher.
