@@ -1,2 +1,29 @@
 # Lol
-Just a response
+a response for that
+
+To start this, I hope you realize I have your brother’s contact info and your family. Remember how your brother acknowledged me to be your partner? Someone so loyal to you and committed to you, yet you found someone so recent that you became so attached and obsessive. What do you think will happen if I told him I was very mad at you? I still had sympathy for your image to your brother and family, so I didn’t. Can’t you understand and see that what you were doing is considered cheating? Said by my auntie’s friend who is a Philosophy teacher.
+
+I didn’t get a glance for you to understand my side and feelings, as a male partner, yet you have the audacity to be upset about how I reacted instead of owning up to it? Even when you tried, I didn’t see any signs or improvements from you. Don’t even say I’m not trying to help you get over something or support you when I’ve been always there for you, even when I’ve got so much responsibilities to handle and the pressure I'm dealing with while you're admiring and obsessing him. I had to, because I simply fucking care. It’s quite stupid and degenerate for you to replace me over someone you just met in fucking Pony Town. Don’t even dare to reason your mental health of getting too attached when you didn’t understand mine. Guilt-tripping me by cutting yourself is stupid, by the way.
+
+Now you’re here sharing our deepest secrets when I didn’t, because I had no intention to do so, because I’m not that type of guy to ruin someone’s image. And on top of that, that was my past self you're babbling about. You think a person can’t change? It’s quite immature for you to share those past selves of me just to make me look bad when you’re the one here bitching about someone you just met very recently. What do you think that makes me feel like as your partner within the three weeks? Right.
+
+For those people I doxxed two years ago, I’m very sorry from the bottom of my heart and I hope the best for those people and good health. I’ve already reflected on my mistakes in December by stopping and changing my ways for the better. Even when I doxxed someone, I didn’t have the intention of sharing it to the public, only to you and R, because I trusted both of you. I mean, we’ve been best friends for six years. I even remember you asked me to dox someone in Roblox because you were getting annoyed and upset, lol.
+
+Yes, I’ve been sending gore before, but only to the three of you. I mean, do I have to repeat myself? And I’m very sorry from the bottom of my heart for that. That was also two years ago, and I’ve also reflected for not doing that again. Again, sharing someone’s secret is stupid, and I hope you don’t heal from your mental health too when you shattered mine very much during the last three weeks of us being together. It’s quite a shame that I’ve been sharing and shouting you out from mall announcements, friends, school announcements, showing how proud I was, but for now I don’t really care anymore as I’ve fully moved on, because at least I do something that makes me happy.
+
+And why do you care about me boasting my boyfriend? At least he’s been with me, supporting me during those times. Before you say I also cheated on you, we were fucking friends supporting each other. During those three weeks, at least he understood my side and supported me to get through it. Oh, forgot to mention, I can’t believe you would mention my past ex and reveal his age, showing our one-year age gap. What are you trying to do, make me look like a pedo? Dumbass.
+
+Yes, he has made me do NSFW commissions, that’s true, but I’m very sorry for that. I only did that because I loved him. I mean, he was my first after all, and I would give myself to him because I wanted to make him happy — not until I found out he was actually using me for art. By the way, this is the third time I’ve checked your account after the breakup. Not because I care about you anymore, and honestly, I don’t really care about you anymore because you’re just a stranger to me.
+
+I was expecting you to make a message about me someday, just like you did to K, so I could respond and say my sorries and wish you good health. Even when I called you the B word, at least give ourselves good terms after everything. But I did not expect you’d take it in a different approach — kinda stupid ngl. Hahahahaha. Mentioning how I acted before, my exes, and the NSFWs I’ve been doing two years ago as if I can’t change and do better. Are you time-frozen, girl? Lmao.
+
+Also, about how you fell for him just because of his aura and how he’s treating you like a boy, and trying to emotionally manipulate me by saying it’s because of that GB and you were overwhelmed when I’m not even asking much. Which led me to be more patient because I even believed you can change your ways, and then you said you didn’t like the title of the relationship as if you weren’t ready. I hope you get the context — getting in a relationship is a long-term fucking commitment. Tbh, what a lame-ass response from you.
+
+Things wouldn’t have gone this way if you hadn’t fucking confessed to me in the first place, so that I didn’t get to be with you and actually find someone better. And I’m happy that I did find someone actually so much better, and I’ve already healed from the bullshit because of our bond and support for each other as we’ve experienced the same thing in our past relationships. Yeah, I boast him because? I’m simply fucking happy, proud that I found someone like him, so why do you have to mention that?
+
+And I don’t really care about the three followers as I’m using my GitHub to express myself, and I can’t believe you can check it even when I blocked you. I wish blocking you had so many features that you wouldn’t even see me. I’ve blocked you throughout every social media so I don’t remember you again, and it helped me significantly to move on after the incident.
+
+I’ve made a long message about what you’ve been saying to A, you can ask him about it, and I hope it opens your fucking eyes.
+
+Bye, and I hope I don’t ever hear from you again.
+
