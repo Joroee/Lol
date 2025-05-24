@@ -32,10 +32,9 @@ And honestly I'm saddened on how you turned and changed around March and April. 
 
 Clarify stuff all you want to your silly Github account that has 600 people to look and read your stupid letter so that i get the bad image and your Pony town circle, But the fact will remain that you cheated one me and i hope all of them get to see my response.
 
+I've kept quiet after everything and i didnt even said shit about you mentioning him or anythih about you in my social medias, but Now reading that especially for me boasting my boyfriend, Said by me, R, K and my other friends to this matter, just Fuck off honestly and mined your own fucking business.
+
 Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
-
-I've kept quiet and after everything i didnt even said shit about you, but Now reading that especially for me boasting my boyfriend, Said by me, R, K and my other friends to this matter, just Fuck off honestly and mined your own business as i mind my own.
-
 
 
 
