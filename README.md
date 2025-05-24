@@ -19,7 +19,7 @@ I was expecting you to make a message about me someday, just like you did to K, 
 
 Also, about how you fell for him just because of his aura and how he’s treating you like a boy which was actually soo stupid tbh, and trying to emotionally manipulate me by saying it’s because of that GB and you were overwhelmed when I’m not even asking much. Which led me to be more patient because I even believed you can change your ways, and then you said you didn’t like the title of the relationship as if you weren’t ready. I hope you get the context, getting in a relationship is a long-term fucking commitment. Tbh, what a lame ass response from you.
 
-Things wouldn’t have gone this way if you hadn’t fucking confessed to me in the first place, so that I didn’t get to be with you and actually find someone better. And I’m happy that I did find someone actually so much better, and I’ve already healed from this bullshit because of our bond and support for each other as we’ve experienced the same thing in our past relationships, which made us stronger. Yeah, I boast him because? I’m simply fucking happy and proud that I found someone like him, so why do you have to mention that?
+Things wouldn’t have gone this way if you hadn’t fucking confessed to me in the first place, so that I didn’t get to be with you and actually find someone better. And I’m happy that I did find someone actually so much better, and I’ve already healed from this bullshit because of our bond and support for each other as we’ve experienced the same thing in our past relationships, which made us stronger. Yeah, I boast him because? I’m simply fucking happy and proud that I found someone like him, so why do you have to mention that? As if you dont boast that guy almost every day even when we were in a relattionship and over it.
 
 I once promised myself I’d never fall in love again after you. But with him, I did, because he’s incredibly kind to me and understanding. I don’t need a year to heal this time; moving on just feels easier now i met him.
 
@@ -29,7 +29,9 @@ I’ve made a long message about what you’ve been saying to A, you can ask him
 
 And honestly I'm saddened on how you turned and changed around March and April. Call me immature who is a 17 year old turning 18 this year but atleast i didnt had the idea to replace, obsessed, idolize and admire someone i just met in a Pony town while I'm in a relationship, its called loyalty. 
 
-And I hope I don’t ever hear from you again and forget about me. As you do the same.
+Clarify stuff all you want to your silly Github account and Pony town circle, But the fact will remain that you cheated one me and i hope all of them get to see my response.
+
+Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
 
 
 
