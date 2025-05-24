@@ -34,6 +34,7 @@ Clarify stuff all you want to your silly Github account that has 600 people to l
 
 Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
 
+I've kept quiet and after everything i didnt even said shit about you, but Now reading that especially for me boasting my boyfriend, Said by me, R, K and my other friends to this matter, just Fuck off honestly and mined your own business as i mind my own.
 
 
 
