@@ -30,7 +30,7 @@ I’ve made a long message about what you’ve been saying to A, you can ask him
 
 And honestly I'm saddened on how you turned and changed around March and April. Call me immature who is a 17 year old turning 18 this year but atleast i didnt had the idea to replace, obsessed, idolize and admire someone i just met in a Pony town while I'm in a relationship, its called loyalty. 
 
-Clarify stuff all you want to your silly Github account and Pony town circle, But the fact will remain that you cheated one me and i hope all of them get to see my response.
+Clarify stuff all you want to your silly Github account that has 600 people to look and read your stupid letter so that i get the bad image and your Pony town circle, But the fact will remain that you cheated one me and i hope all of them get to see my response.
 
 Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
 
