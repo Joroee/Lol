@@ -26,7 +26,7 @@ I once promised myself I’d never fall in love again after you. But with him, I
 
 And I don’t really care about the three followers as I’m using my GitHub to express myself, and I can’t believe you can check it even when I blocked you. I wish blocking you had so many features that you wouldn’t even see me. I’ve blocked you throughout every social media so I don’t remember you again, and it helped me significantly to move on after the incident.
 
-I’ve made a long message about what you’ve been saying to A, you can ask him about it, and I hope it opens your fucking eyes.
+I’ve made a long message about how i felt and a response of what you’ve been saying to A after i declared, you can ask him about the whole details, and I hope you fucking understand because every sentence there had fabrics of my soul.
 
 And honestly I'm saddened on how you turned and changed around March and April. Call me immature who is a 17 year old turning 18 this year but atleast i didnt had the idea to replace, obsessed, idolize and admire someone i just met in a Pony town while I'm in a relationship, its called loyalty. 
 
