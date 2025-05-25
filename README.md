@@ -34,6 +34,10 @@ Clarify stuff all you want to your silly Github account that has 600 people to l
 
 I've kept quiet after everything because again, im in a process of forgetting you existed in my life, and i didnt even said shit about you mentioning him or anything about you in my social medias, but Now reading that especially for me boasting my boyfriend, Said by me, R, K and my other friends to this matter, just Fuck off honestly and  please, mined your own fucking business and stop digging in to the past and to the same hole fucking bitch, because its already over, grow up.
 
+Last thing, you've changed significantly because of that guy, Which is incredibly disappointing as fuck even K, R understood it. And i hope you keep up using GB as an excuse as it get the worse of you with your future self. sharing my secrets with your friends and gossiping them about my new boyfriend, like why do you care lmao? Fuck you and you can Fuck off and ride your Mans pony penis.
+
+I've never been this Frustrated and angry for every fiber in my muscles, but words cant express how angry i am for what you have to say about me. And secretly say stuff behind my back, i hope both of you get into a car crash and get into coma for many years.
+
 Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
 
 
