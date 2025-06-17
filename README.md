@@ -40,6 +40,8 @@ I've never been this Frustrated and angry for every fiber in my muscles, but wor
 
 Bye. I hope I don’t ever hear from you again and forget about me. As you do the same.
 
+Another note: Im gonna keep this message up, and i still fucking hate you soo much and it will stay like that, you're absolutely disgusting and a horrible person calling out on someone that almost hanged himself isntead of admitting what you're actually been doing. Cheating can kill someone you know~ 
+
 Now, Off you go 🥰
 
 
